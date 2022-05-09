@@ -2,7 +2,7 @@
 - 👀 I’m actually doing an end of studies internship
 - 🌱 I’m A web developer and looking for a first position after graduation
 - 📫 How to reach me ...
-- LinkedIn : linkedin.com/in/aziz-jawedi-294231171/
+- LinkedIn : Aziz Jawedi
 - By E-mail : aziz.jawedi@esprit.tn
 - By WhatsApp: +34 644 259 040
 
